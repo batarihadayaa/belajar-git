@@ -1,3 +1,3 @@
 # Cerita Naya
 
-ini ceritaku
+ini kisahku, aku bernama Araminta Batari Hadaya.
